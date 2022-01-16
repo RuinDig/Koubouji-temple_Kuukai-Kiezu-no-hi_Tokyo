@@ -1,4 +1,4 @@
-# koubouji-temple_kuukai-kiezu-no-hi_Tokyo
+# Koubouji-temple_Kuukai-Kiezu-no-hi_Tokyo
 東京都港区にある弘法寺の「空海 消えずの火」は広島県の宮島弥山大本山大聖院で1200年以上続けて灯る火を分けられたものになる。
 
 ![Koubouji-Temple_Kuukai-Kiezu-No-Hi_Tokyo_01](https://user-images.githubusercontent.com/20723919/149622462-098781d0-ef49-4d99-ac91-8a8a5583404c.jpg)
